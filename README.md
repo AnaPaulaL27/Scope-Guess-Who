@@ -1,6 +1,6 @@
 # Scope-Guess-Who ???
 
-![](![image](https://www.seekpng.com/png/detail/140-1405949_guess-who-hasbro-guess-who-game.png)
+!(![image](https://www.seekpng.com/png/detail/140-1405949_guess-who-hasbro-guess-who-game.png)
 
 
 Guess Who
